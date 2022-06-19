@@ -1,4 +1,4 @@
-### Hi I"m Kuki :D Nice to meet you! 
+### Hi I"m Kuki :D Nice to meet you! ❣
 - 🌱 Estudando Java
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: adoro paçocas :D
