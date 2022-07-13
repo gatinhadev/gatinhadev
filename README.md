@@ -1,5 +1,5 @@
-### Hi I"m Kuki :D Nice to meet you! ❣
-- 🌱 Estudando Java
+### Hi Im Kuki :D Nice to meet you! ❣
+- 🌱 Estudando Java/Javascript
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: adoro paçocas :D
 
@@ -24,6 +24,6 @@
    
    ##
    
-   ![ezgif com-gif-maker](https://user-images.githubusercontent.com/106893370/174504055-dad12990-74c2-44fc-b255-cf2e0c5f6d74.gif)
+   
    
 
